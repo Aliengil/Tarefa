@@ -1,0 +1,1 @@
+Meu nome é Gilberto Fonseca de Brito. Estou animado para continuar aprendendo e contribuindo com o curso. Obrigado pela oportunidade de participar desta jornada de aprendizado.
